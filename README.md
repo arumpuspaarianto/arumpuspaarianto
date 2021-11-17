@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @arumpuspaarianto
+- 👀 I’m highly interested in cutie fluffy projects
